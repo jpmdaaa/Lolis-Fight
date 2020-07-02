@@ -1,0 +1,1 @@
+Fairy Muffin Round Pop is a Japanese pop-like rounded sans-serif font. With the good twist of the fairies, this font features original designs of hiragana, katakana, some symbols and the kanji characters. It has borrowed glyphs from Genjuu Gothic, Kosugi Maru and Rouned M+. Best used for display, headlines, children's stuff, kiddie parties and SFW works.
